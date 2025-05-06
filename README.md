@@ -1,4 +1,5 @@
-![stay_secure1](https://github.com/user-attachments/assets/c4912b74-36d7-4ee9-a75d-72681d4db3bc)
+![Hilda Cedeño](https://github.com/user-attachments/assets/fd06aebe-1bfe-4eb5-834d-1d0ffc6f2b38)
+
 。。+゜゜。。+゜゜。。+゜゜。。 。。+゜゜。。+゜゜。。+゜゜。。 。。+゜゜。。+゜゜。。+゜゜。。+゜゜。。+゜。。+゜
 
 <h1><img width="50" height="50" src="https://img.icons8.com/bubbles/100/pixel-star.png" alt="pixel-star"/> ℌ𝔢𝔩𝔩𝔬 𝔱𝔥𝔢𝔯𝔢!</h1>
