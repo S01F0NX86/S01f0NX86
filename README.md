@@ -1,6 +1,5 @@
-![image](https://github.com/user-attachments/assets/25acb662-6688-4f20-beb4-b3bcfb82a1d0)
-
-。。+゜゜。。+゜゜。。+゜゜。。 。。+゜゜。。+゜゜。。+゜゜。。 。。+゜゜。。+゜゜。。+゜゜。。 
+![stay_secure1](https://github.com/user-attachments/assets/c4912b74-36d7-4ee9-a75d-72681d4db3bc)
+。。+゜゜。。+゜゜。。+゜゜。。 。。+゜゜。。+゜゜。。+゜゜。。 。。+゜゜。。+゜゜。。+゜゜。。+゜゜。。+゜。。+゜゜。。+
 
 <h1><img width="50" height="50" src="https://img.icons8.com/bubbles/100/pixel-star.png" alt="pixel-star"/> ℌ𝔢𝔩𝔩𝔬 𝔱𝔥𝔢𝔯𝔢!</h1>
 <p>I'm Hilda, a passionate cybersecurity student with a constant curiosity and eagerness to learn more about cybersecurity, IT, and related technologies. My training has focused on System Administration and Network Security, and I aspire to become a Malware Analyst in the future.</p>
